@@ -6,6 +6,7 @@
 
 > *No users yet. No revenue yet. Just pure potential waiting to be unlocked.* 
 
+[Join the Waitlist](https://app.youform.com/forms/xvkxwb31)
 
 ---
 
